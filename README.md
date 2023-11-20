@@ -19,7 +19,7 @@ Namasmarana:Verehrung des (göttlichen) Namens
 
 
 # Bio
-- Robert panek
+# Robert panek
 - 49 Jahre
 - Gärtnermeister und Wirtschafter
 - geschieden, eine Tochter
